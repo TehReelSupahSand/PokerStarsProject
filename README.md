@@ -1,1 +1,3 @@
 # PokerStarsProject
+
+ESSE MALDITO PURGAMA Q SO DA TRETA
